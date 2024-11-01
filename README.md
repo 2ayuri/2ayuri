@@ -6,8 +6,8 @@ Im currently in highschool working on projects here on github
 
 My pronouns are She/Her but you can use any (●'◡'●)
 
-You can contact me at my mail
+You can contact me at my mai
 helensayuri39@gmail.com
 （￣︶￣）↗　
 
-![this is me if you even care(https://files.catbox.moe/afe7zj.gif)
+![wow](https://files.catbox.moe/afe7zj.gif)
